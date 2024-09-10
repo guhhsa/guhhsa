@@ -3,7 +3,7 @@
  - 💡 Eu gosto de jogos tipo, Ex: Free fire, Blood Strike e Albion Online.
  - 🎨 Gosto de jogar jogos de celulares.
  - 🌱 Torço pro Flamengo.
- - 💡 Moro muma cidade pequena, mas me alegro com tanta bondade presente.
+ - 💡 Moro em uma cidade pequena, mas me alegro com tanta bondade presente.
 
 
    BEM ISSO É UM POUCO DE MIM. :)
