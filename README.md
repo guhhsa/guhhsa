@@ -6,4 +6,4 @@
  - 💡 Moro em uma cidade pequena, mas me alegro com tanta bondade presente.
 
 
-   BEM ISSO É UM POUCO DE MIM. :)
+   ISSO É UM POUCO DE MIM. :)
